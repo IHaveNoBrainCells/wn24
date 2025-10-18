@@ -1,1 +1,1 @@
-# wn24
+Project portal: https://pl.wn24.com
